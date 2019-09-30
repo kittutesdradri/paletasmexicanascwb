@@ -1,0 +1,2 @@
+# paletasmexicanascwb
+GitHub Pages
